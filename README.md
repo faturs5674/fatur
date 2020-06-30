@@ -1,0 +1,2 @@
+# fatur
+tugas dan uts
